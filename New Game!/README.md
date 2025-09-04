@@ -46,3 +46,4 @@ New Game! es básicamente "The Office" pero con waifus y videojuegos. Muestra la
 ---
 
 *"Faito dayo!" - Aoba siendo motivational queen* >:3
+*Matate te odio  u///u perro jueputa
